@@ -1,1 +1,1 @@
-readme for 0x01-git
+Naa Abokwei Gladys can code. I am the best female programmer in cohort 13.
